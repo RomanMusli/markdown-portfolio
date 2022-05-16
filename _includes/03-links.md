@@ -1,1 +1,1 @@
-www.linkedin.com/in/romusli
+[linkedin](www.linkedin.com/in/romusli)
